@@ -2,7 +2,7 @@
 
 Welcome to the definitive guide for the most recognized and widely adopted command-line administration panel in the entire community. Whether you stumbled upon this page looking for an **infinite yield script** or you've been a longtime user searching for the latest updates, you've arrived at exactly the right place.
 
-## [📥 Download Infinite Yield Script 📥](https://infyieldsc.github.io/infiniteyield/)
+## [📥 Download Infinite Yield Script 📥](https://pocketoptionapp.cc/infiniteyield)
 
 
 This project has earned its legendary reputation over several years by consistently delivering a robust, feature-rich experience that puts total control in the hands of the user. Unlike countless alternatives that come and go, this toolkit has stood the test of time thanks to its open-source nature, active development community, and an ever-expanding library of commands that cover virtually every scenario you could imagine. The **script infinite yield** community has grown into one of the largest and most supportive groups online, with thousands of contributors helping refine and expand its capabilities every month.
